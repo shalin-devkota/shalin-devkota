@@ -13,7 +13,7 @@ You can reach me at:
 
 ✉️ Email: shalin.devkota01@gmail.com
 
-Disocrd: GenVenom#3394
+Disocrd: genvenom
 
 
 
